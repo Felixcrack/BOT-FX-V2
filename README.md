@@ -1,0 +1,2 @@
+# BOT FX V2
+ BOT BY FX MODS
